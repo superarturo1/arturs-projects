@@ -1,2 +1,0 @@
-# arturs-projects
-arturs-projects
